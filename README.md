@@ -1,0 +1,1 @@
+- 👋 Sup, im kapolargamerbr9 a random guy in github , very often procrastination, do c++
