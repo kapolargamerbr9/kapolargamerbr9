@@ -1,1 +1,1 @@
-- 👋 Sup, im kapolargamerbr9 a random guy in github , very often procrastination, do c++
+- 👋 Sup, im kapolargamerbr9 a random guy in github, uhh I try to do some stuff but fail in 99% of them..
